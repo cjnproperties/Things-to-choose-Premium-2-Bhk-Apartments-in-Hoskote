@@ -8,9 +8,10 @@ Our 2 Bhk Apartments for Sale in Hoskote have been designed to enhance your mood
 Flats for sale in Hoskote for us is a passion, a commitment to deliver on the trust reposed by our clients, so whether it is the basic raw material or the final fittings and fixture,only the best is used.
 
 Get us:
-Visit:https://cjnproperties.com/sai-fortune
+Visit:https://cjnproperties.com/
 Site Office:Swamy Vivekananda Nagar, KHB Colony, Hoskote, Bangalore.
 TEL:+91 8105791728, +91 9591008000
 Email:sales@cjnproperties.com
+
 
 
